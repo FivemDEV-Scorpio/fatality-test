@@ -1,0 +1,1 @@
+Tady vytvoř stav-zde
